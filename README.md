@@ -1,7 +1,5 @@
 ## Hi there it's Sathish 👋
 
-# Sathish Jindam
-
 **Contact**  
 - LinkedIn: [sathishjindam](https://www.linkedin.com/in/sathishjindam)
 
